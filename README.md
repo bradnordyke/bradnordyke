@@ -1,4 +1,4 @@
-# Brad Nordyke MD
+# Bradley W. Nordyke MD
 
 Click here for [Brad Wrestling Share](https://photos.app.goo.gl/7s2RxeMgWqV4mhoy7)  
 
